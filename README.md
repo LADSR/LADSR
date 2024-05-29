@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @LADSR
+- 👋 Hi, I’m @LADSR. My name
 - 👀 I’m interested in Music, Manga/Anime, and MMA
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Email me at LADaniels@strategicrail.com
 - ⚡ Fun fact: Sharks have existed longer than trees
 
